@@ -2,7 +2,7 @@
 - 👀 I’m interested in malware
 - 🌱 I’m currently learning C
 - 💞️ I’m looking to collaborate people for the fields 
-- 😄 Pronouns: Pronouns are a joke 🤗
+- 😄 Pronouns: Pronouns are a joke 🤗 Kys 
 - ⚡ Fun fact: Shrek is love Shrek is life
 -              
 
